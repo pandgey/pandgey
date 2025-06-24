@@ -1,6 +1,6 @@
 # 🐈‍⬛ Hiya!!!, I'm pandgey! 🐈‍⬛
 
-🐾I like to build and make random things🐾
+🐾I like to build and make random things. I will do anything if its interesting🐾
 
 🌙<b>Whatever the mind can conceive and believe, it can achieve<b>🌙
 
